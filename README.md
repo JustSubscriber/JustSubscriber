@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JustSubscriber
+- 📫 How to reach me: discord justsub
+- I'm learning I want to do something in this world 
